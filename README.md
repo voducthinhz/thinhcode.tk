@@ -1,0 +1,2 @@
+# thinhcode.tk
+ thinhcodetk 
